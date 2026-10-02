@@ -1,1 +1,0 @@
-# The-first-training-task-for-the-algorithm-team
